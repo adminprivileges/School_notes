@@ -1,1 +1,1 @@
-Just noted i have from grad school
+Just notes i have from grad school
